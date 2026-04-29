@@ -1,4 +1,4 @@
-
+custom the strongest battlegrounds Script is the best the strongest battlegrounds Script, featuring one-hit kill and custom skins. Safe and powerful
 
 
 
